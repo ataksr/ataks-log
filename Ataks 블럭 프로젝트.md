@@ -1,6 +1,7 @@
 2019 2/19일 업뎃 ver1
 
                          1블럭(글엘~주작)
+                     
 Laura(글엘,관리자) https://steamcommunity.com/id/64661747
 김덕배(주작) https://steamcommunity.com/id/klrt1456
 Top Shen(주작) https://steamcommunity.com/id/uzerisk
@@ -17,6 +18,7 @@ Brank FK(특주) https://steamcommunity.com/id/stopspamsiith
 
 
                           2블럭(공훈~1급에케)
+                     
 Roiwe(공훈) https://steamcommunity.com/id/wild2229
 Rip Dawn(공훈) https://steamcommunity.com/profiles/76561198263354011
 Lia(쌍케) https://steamcommunity.com/id/AtaksLia
@@ -46,6 +48,7 @@ mov(쌍케) https://steamcommunity.com/id/kosmes
 
 
                           3블럭(2급에케~노바)
+                          
 wendygod(2급에케) https://steamcommunity.com/id/wendygod
 수풀(2급에케) https://steamcommunity.com/id/SUPUL1234
 Bomber(2급에케) https://steamcommunity.com/profiles/76561198128204763
@@ -59,6 +62,7 @@ GUNNERS(노바) https://steamcommunity.com/profiles/76561197967699028
 
 
                           4블럭(실버 및 언랭)
+                          
 Syntax(언랭) https://steamcommunity.com/id/XyZKevin
 Warehouse(언랭) https://steamcommunity.com/profiles/76561198307938580
 Mangking(언랭) https://steamcommunity.com/profiles/76561198416522563
