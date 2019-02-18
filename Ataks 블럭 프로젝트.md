@@ -43,8 +43,6 @@ LuNi(쌍케) https://steamcommunity.com/profiles/76561198170938615
 
 피플애플(공훈) https://steamcommunity.com/id/mokagold
 
-SaidBySolo(공훈) https://steamcommunity.com/id/SaidBySolo
-
 TYPE:R(공훈) https://steamcommunity.com/id/clsqlc
 
 LEMON1K(공훈) https://steamcommunity.com/profiles/76561198334438962
@@ -86,6 +84,8 @@ mov(쌍케) https://steamcommunity.com/id/kosmes
                           3블럭(2급에케~노바)
                           
                           
+라고솔로가말했습니다(2급에케) https://steamcommunity.com/id/SaidBySolo
+
 wendygod(2급에케) https://steamcommunity.com/id/wendygod
 
 수풀(2급에케) https://steamcommunity.com/id/SUPUL1234
