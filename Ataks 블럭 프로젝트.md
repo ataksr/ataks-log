@@ -26,7 +26,7 @@ over time(주작) https://steamcommunity.com/profiles/76561198009703562
 
 Brank FK(특주) https://steamcommunity.com/id/stopspamsiith\
 
-유이(특주) https://steamcommunity.com/profiles/765611980825981
+유이(특주) https://steamcommunity.com/profiles/76561198082598141
 
 qvoid(특주) https://steamcommunity.com/id/qvoidcs_
 
