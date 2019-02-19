@@ -28,6 +28,7 @@ Brank FK(특주) https://steamcommunity.com/id/stopspamsiith\
 
 유이(특주) https://steamcommunity.com/profiles/765611980825981
 
+qvoid(특주) https://steamcommunity.com/id/qvoidcs_
 
 
                           2블럭(공훈~1급에케)
