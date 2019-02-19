@@ -71,7 +71,7 @@ Depth(공훈) https://steamcommunity.com/id/depth_
 
 CreamE(공훈) https://steamcommunity.com/id/creameprofile
 
-탘주(1급에케) https://steamcommunity.com/profiles/76561198369066459
+탘주() https://steamcommunity.com/profiles/76561198369066459
 
 arcturus b(공훈) https://steamcommunity.com/profiles/76561198111309081
 
