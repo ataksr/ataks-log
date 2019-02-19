@@ -106,6 +106,8 @@ JunkDog(2급에케) https://steamcommunity.com/profiles/76561198111309081
 
 GUNNERS(노바) https://steamcommunity.com/profiles/76561197967699028
 
+kori(노바) https://steamcommunity.com/id/kori1acc
+
 
                           4블럭(실버 및 언랭)
                           
