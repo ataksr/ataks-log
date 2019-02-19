@@ -24,7 +24,9 @@ Empty(특주) https://steamcommunity.com/id/EmPTy_is_Here
 
 over time(주작) https://steamcommunity.com/profiles/76561198009703562
 
-Brank FK(특주) https://steamcommunity.com/id/stopspamsiith
+Brank FK(특주) https://steamcommunity.com/id/stopspamsiith\
+
+유이(특주) https://steamcommunity.com/profiles/765611980825981
 
 
 
