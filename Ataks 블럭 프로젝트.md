@@ -2,7 +2,7 @@
 
                          1블럭(글엘~주작)
                      
-Laura(글엘,관리자) https://steamcommunity.com/id/64661747
+Laura(글엘) https://steamcommunity.com/id/64661747
 
 김덕배(주작) https://steamcommunity.com/id/klrt1456
 
