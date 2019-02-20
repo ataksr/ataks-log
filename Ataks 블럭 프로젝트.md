@@ -38,7 +38,7 @@ Roiwe(공훈) https://steamcommunity.com/id/wild2229
 
 Rip Dawn(공훈) https://steamcommunity.com/profiles/76561198263354011
 
-Lia(쌍케) https://steamcommunity.com/id/AtaksLia
+Lia() https://steamcommunity.com/id/AtaksLia
 
 Tiiiiiiiiger (1급에케) https://steamcommunity.com/id/Tiiiiiiiiger
 
