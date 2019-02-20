@@ -82,6 +82,7 @@ Jake(공훈) https://steamcommunity.com/id/BOTJAKE-CSGO
 
 mov(쌍케) https://steamcommunity.com/id/kosmes
 
+수풀(2급에케) https://steamcommunity.com/id/SUPUL1234
 
 
                           3블럭(2급에케~노바)
@@ -90,8 +91,6 @@ mov(쌍케) https://steamcommunity.com/id/kosmes
 라고솔로가말했습니다(2급에케) https://steamcommunity.com/id/SaidBySolo
 
 wendygod(2급에케) https://steamcommunity.com/id/wendygod
-
-수풀(2급에케) https://steamcommunity.com/id/SUPUL1234
 
 Bomber(2급에케) https://steamcommunity.com/profiles/76561198128204763
 
