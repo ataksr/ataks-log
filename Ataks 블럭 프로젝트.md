@@ -22,7 +22,7 @@ LaikaN(글엘) https://steamcommunity.com/profiles/76561198334438962
 
 Empty(특주) https://steamcommunity.com/id/EmPTy_is_Here
 
-over time(주작) https://steamcommunity.com/profiles/76561198009703562
+~~over time(주작) https://steamcommunity.com/profiles/76561198009703562~~ 개인 사유로 클랜 탈퇴
 
 Brank FK(특주) https://steamcommunity.com/id/stopspamsiith\
 
@@ -102,7 +102,7 @@ Ziho(노바) https://steamcommunity.com/profiles/76561198075805736
 
 Silas(2급에케) https://steamcommunity.com/id/wooy1026
 
-JunkDog(2급에케) https://steamcommunity.com/profiles/76561198111309081
+~~JunkDog(2급에케) https://steamcommunity.com/profiles/76561198111309081~~ 공방 이슈로 인한 탈퇴 의사
 
 GUNNERS(노바) https://steamcommunity.com/profiles/76561197967699028
 
