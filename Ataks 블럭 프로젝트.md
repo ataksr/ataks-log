@@ -30,11 +30,15 @@ Brank FK(특주) https://steamcommunity.com/id/stopspamsiith\
 
 qvoid(특주) https://steamcommunity.com/id/qvoidcs_
 
+피플애플(주작) https://steamcommunity.com/id/mokagold
+
+
 
                           2블럭(공훈~1급에케)
    
-   
-Roiwe(공훈) https://steamcommunity.com/id/wild2229
+라고솔로가말했습니다(1급에케) https://steamcommunity.com/id/SaidBySolo
+
+~~Roiwe(공훈) https://steamcommunity.com/id/wild2229~~ 공방 이슈
 
 Rip Dawn(공훈) https://steamcommunity.com/profiles/76561198263354011
 
@@ -43,8 +47,6 @@ Lia() https://steamcommunity.com/id/AtaksLia
 Tiiiiiiiiger (1급에케) https://steamcommunity.com/id/Tiiiiiiiiger
 
 LuNi(쌍케) https://steamcommunity.com/profiles/76561198170938615
-
-피플애플(공훈) https://steamcommunity.com/id/mokagold
 
 TYPE:R(공훈) https://steamcommunity.com/id/clsqlc
 
@@ -86,9 +88,9 @@ mov(쌍케) https://steamcommunity.com/id/kosmes
 
 
                           3블럭(2급에케~노바)
-                          
-                          
-라고솔로가말했습니다(2급에케) https://steamcommunity.com/id/SaidBySolo
+                                                    
+
+(Pink-Banana(2급에케) https://steamcommunity.com/id/PinkBanas/
 
 wendygod(2급에케) https://steamcommunity.com/id/wendygod
 
