@@ -1,4 +1,4 @@
-2019 2/19일 업뎃 ver1
+2019 4/22일 업뎃 ver1.1
 
                          1블럭(글엘~주작)
                      
@@ -22,10 +22,6 @@ LaikaN(글엘) https://steamcommunity.com/profiles/76561198334438962
 
 Empty(특주) https://steamcommunity.com/id/EmPTy_is_Here
 
-~~over time(주작) https://steamcommunity.com/profiles/76561198009703562~~ 개인 사유로 클랜 탈퇴
-
-Brank FK(특주) https://steamcommunity.com/id/stopspamsiith\
-
 유이(특주) https://steamcommunity.com/profiles/76561198082598141
 
 qvoid(특주) https://steamcommunity.com/id/qvoidcs_
@@ -37,8 +33,6 @@ qvoid(특주) https://steamcommunity.com/id/qvoidcs_
                           2블럭(공훈~1급에케)
    
 라고솔로가말했습니다(1급에케) https://steamcommunity.com/id/SaidBySolo
-
-~~Roiwe(공훈) https://steamcommunity.com/id/wild2229~~ 공방 이슈
 
 Rip Dawn(공훈) https://steamcommunity.com/profiles/76561198263354011
 
@@ -70,12 +64,6 @@ czar(1급에케,새벽유저) https://steamcommunity.com/profiles/76561198392110
 
 외국인(공훈) https://steamcommunity.com/id/wndud4472
 
-Depth(공훈) https://steamcommunity.com/id/depth_
-
-CreamE(공훈) https://steamcommunity.com/id/creameprofile
-
-탘주(공훈) https://steamcommunity.com/profiles/76561198369066459
-
 arcturus b(공훈) https://steamcommunity.com/profiles/76561198111309081
 
 brok3n(1급에케) https://steamcommunity.com/profiles/76561198378821647
@@ -88,9 +76,7 @@ mov(쌍케) https://steamcommunity.com/id/kosmes
 
 
                           3블럭(2급에케~노바)
-                                                    
-
-(Pink-Banana(2급에케) https://steamcommunity.com/id/PinkBanas/
+                                                   
 
 wendygod(2급에케) https://steamcommunity.com/id/wendygod
 
@@ -98,13 +84,9 @@ Bomber(2급에케) https://steamcommunity.com/profiles/76561198128204763
 
 casrok(노바) https://steamcommunity.com/id/casrok
 
-gir1boy(노바) https://steamcommunity.com/id/CSGODot
-
 Ziho(노바) https://steamcommunity.com/profiles/76561198075805736
 
 Silas(2급에케) https://steamcommunity.com/id/wooy1026
-
-~~JunkDog(2급에케) https://steamcommunity.com/profiles/76561198111309081~~ 공방 이슈로 인한 탈퇴 의사
 
 GUNNERS(노바) https://steamcommunity.com/profiles/76561197967699028
 
